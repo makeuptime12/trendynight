@@ -1,0 +1,1 @@
+Makeup is an essential way of life and it is a day-to-day need too for maximum people, especially women and girls. To get the best out of your makeup, you need to follow certain guidelines. You can find most of the makeup information at https://makeuptrendoficial.com/
